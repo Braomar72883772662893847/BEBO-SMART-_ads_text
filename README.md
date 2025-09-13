@@ -1,1 +1,0 @@
-# BEBO-SMART-_ads_text
